@@ -1,1 +1,1 @@
-https://ElenaKanaplyanik.github.io/Project-2/2 E-COMMERCE/
+https://elenakanaplyanik.github.io/Project-2/2%20E-COMMERCE/
